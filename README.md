@@ -1,2 +1,1 @@
-#MeuPrimeiroCommit	
-Esse Ã© meu primeiro teste, \o\
+VimCrypt~01!Ä(Ñ,©Êb=¸/8Î·§RkÏõEcŠobù2™ta"ÞÛxœqW’yâ–•™x³
